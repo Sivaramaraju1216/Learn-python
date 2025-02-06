@@ -14,4 +14,4 @@
 ## follow me on
 #### `instagram` :[sla_codeing](https://www.instagram.com/sla_codeing?igsh=YjZxOXNpNDB1aW92)
 #### `youtube` :[sla codeing](https://youtube.com/@slacodeing?si=CvJMnxT8coL_XTs2)
-#### `telegram` :[sla codeing](https://t.me/sla_codeing?fbclid=PAZXh0bgNhZW0CMTEAAaZp_5TeRCuPfsMzCz4t3X1Zkl0HF8airuCtd-0fUPugGWxyxmZPldQqfEw_aem_2c-5PBNs848mLCFDLJotKw)
+#### `telegram` :[sla codeing](https://t.me/mastertheProgramming)
